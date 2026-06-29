@@ -1,82 +1,4 @@
-# 每日默念
-
-我的一生是一场无意识自我实现的故事。
-
-
-
-一个人来到这个世上不是为了工作，而是来享受悠闲的。
-
-一个社会把一个人的时间全部剥夺，把享受悠闲生活的门槛抬到无比高。
-
-让你在恐惧中日复一日用几十年的生命去换取，去买人生最后几年的悠闲+安全的幻象。
-
-这是人类社会最大的骗局，看不透这点的人一生都会活在“器”的层面挣扎。
-
-你也不需要努力，需要努力做的事也就表示这件事是你不想做的，你玩的时候需要努力吗？
-
-你想做的事内驱力会引领你去做，根本不需要用努力勤奋这类词来鞭答自己。
-
-你要做的就是先修复好应试教育的毒害和有毒的家庭带给你的创伤，先学会去玩，去重新唤醒对世界的感知。
-
-会玩的人就会创造，你想要的一切都在创造里！
-
-学历，房子，工作统统不重要，你的父母也不重要，你不需要去背负任何人的期待。
-
-你可以让任何人失望，别人期待你不是你的人生课题。
-
-你这一生最重要的就是你的健康，你的快乐，睡好
-
-
-
-you are what you think. 思想塑造现实。
-
-garbage in garbage out. 输入垃圾 输出垃圾。
-
-emotions aren't problems they are signals. 情绪不是问题，它们是信号。
-
-fear means something's important to you. 恐惧暗示重要之事。
-
-anger means your boundaries were crossed. 愤怒意味界限被打破。
-
-anxiety means you live in the future. 焦虑源于未来幻想。you need to come back to the present. 回归当下即是解药。
-
-habits shape your life not motivation. 习惯决定人生，无关动力。change your habits change everything. 改变习惯，重塑一切。
-
-your past is a book, read it don't live in it. 往事如书，可阅，不可活在其中。
-
-triggered by others? that's a reflection. 他人触发了你的情绪，这其实是镜像。
-
-what you judge is what you haven't healed or haven't accepted.你所批判的是“未愈之伤”，或还未接纳的事实。
-
-control is a myth. the only power you have s your decisions. 控制欲是幻想。真正的力量在于你的每一个决定。
-
-at the end of the day, you are the architect and your life is your design.最终，你是自己的人生设计师，你人生由你主宰。
-
-**Probleme kann man niemals mit derselben Denkweise lösen, durch die sie entstanden sind.** ——问题永远无法通过它们产生时的同一种思维方式来解决。
-
-
-
-从视觉的角度说一说，人的视觉不仅仅是看东西那么简单，当我作为一个单独的个体看外界时，世界向我聚拢，我是世界的中心，我完全自由，这就产生了一种超越性，我是主体。这就是[萨特](https://zhida.zhihu.com/search?content_id=51913093&content_type=Answer&match_order=1&q=萨特&zd_token=eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJpc3MiOiJ6aGlkYV9zZXJ2ZXIiLCJleHAiOjE3NjQ2NDI1MTgsInEiOiLokKjnibkiLCJ6aGlkYV9zb3VyY2UiOiJlbnRpdHkiLCJjb250ZW50X2lkIjo1MTkxMzA5MywiY29udGVudF90eXBlIjoiQW5zd2VyIiwibWF0Y2hfb3JkZXIiOjEsInpkX3Rva2VuIjpudWxsfQ.KmNQpB3xM3RCo7SncKPCVAaDrQEn0DCeQH2JMBAfXus&zhida_source=entity)所谓“[主体我](https://zhida.zhihu.com/search?content_id=51913093&content_type=Answer&match_order=1&q=主体我&zd_token=eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJpc3MiOiJ6aGlkYV9zZXJ2ZXIiLCJleHAiOjE3NjQ2NDI1MTgsInEiOiLkuLvkvZPmiJEiLCJ6aGlkYV9zb3VyY2UiOiJlbnRpdHkiLCJjb250ZW50X2lkIjo1MTkxMzA5MywiY29udGVudF90eXBlIjoiQW5zd2VyIiwibWF0Y2hfb3JkZXIiOjEsInpkX3Rva2VuIjpudWxsfQ.VGYlB6xB8gOx7M0NTZEmM7uqGUjzRtj4e63oYnL3MM4&zhida_source=entity)”。
-
-当我发现我被他人凝视，我变成了他人凝视的对象，我成了他者，我在他人的目光下变质了，“**我在我的活动之中把别人的注视当做我自己的可能性**”，也就是一种[异化](https://zhida.zhihu.com/search?content_id=51913093&content_type=Answer&match_order=1&q=异化&zd_token=eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJpc3MiOiJ6aGlkYV9zZXJ2ZXIiLCJleHAiOjE3NjQ2NDI1MTgsInEiOiLlvILljJYiLCJ6aGlkYV9zb3VyY2UiOiJlbnRpdHkiLCJjb250ZW50X2lkIjo1MTkxMzA5MywiY29udGVudF90eXBlIjoiQW5zd2VyIiwibWF0Y2hfb3JkZXIiOjEsInpkX3Rva2VuIjpudWxsfQ.uqXgDq9FgZkGmbwjA-wuAFqsS0imdZ9kdq0s1Eeb268&zhida_source=entity)，一种[物化](https://zhida.zhihu.com/search?content_id=51913093&content_type=Answer&match_order=1&q=物化&zd_token=eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJpc3MiOiJ6aGlkYV9zZXJ2ZXIiLCJleHAiOjE3NjQ2NDI1MTgsInEiOiLnianljJYiLCJ6aGlkYV9zb3VyY2UiOiJlbnRpdHkiLCJjb250ZW50X2lkIjo1MTkxMzA5MywiY29udGVudF90eXBlIjoiQW5zd2VyIiwibWF0Y2hfb3JkZXIiOjEsInpkX3Rva2VuIjpudWxsfQ.wd0PgJxPEE1AXhtE1MCoRro3UQxluEqzKZnhP6QuT4k&zhida_source=entity)，一种被目光的奴役，也是对我这个主体的自由性和超越性的剥夺，于是**主体我**成了**[对象我](https://zhida.zhihu.com/search?content_id=51913093&content_type=Answer&match_order=1&q=对象我&zd_token=eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJpc3MiOiJ6aGlkYV9zZXJ2ZXIiLCJleHAiOjE3NjQ2NDI1MTgsInEiOiLlr7nosaHmiJEiLCJ6aGlkYV9zb3VyY2UiOiJlbnRpdHkiLCJjb250ZW50X2lkIjo1MTkxMzA5MywiY29udGVudF90eXBlIjoiQW5zd2VyIiwibWF0Y2hfb3JkZXIiOjEsInpkX3Rva2VuIjpudWxsfQ.ueARsWshvZHnNQuQr8-6ec12pHSsqTMcx_bUErWpOaQ&zhida_source=entity)，**而他者成了我眼中的主体**。**由我的目光建立起来的那个“我的世界”崩溃了，这就是所谓他者即地狱。
-
-比如我在偷窥澡堂子，自得其乐，我很放松，很自由，自以为很隐蔽。忽然我的余光发现远处的楼上有人在看我，此时虽然这个人不可能对我造成威胁，不认识我，也不会妨害我继续偷窥，但作为主体的，超越的我，在他人目光的注视下被异化，奴役，完全崩溃了。
-
-展开一下，艺术作品里面，比如[德加](https://zhida.zhihu.com/search?content_id=51913093&content_type=Answer&match_order=1&q=德加&zd_token=eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJpc3MiOiJ6aGlkYV9zZXJ2ZXIiLCJleHAiOjE3NjQ2NDI1MTgsInEiOiLlvrfliqAiLCJ6aGlkYV9zb3VyY2UiOiJlbnRpdHkiLCJjb250ZW50X2lkIjo1MTkxMzA5MywiY29udGVudF90eXBlIjoiQW5zd2VyIiwibWF0Y2hfb3JkZXIiOjEsInpkX3Rva2VuIjpudWxsfQ.XPECltAcfe1bpcyhgvToKt2ykhCcSVba5sDukqnTsTw&zhida_source=entity)的画，暗示了一个偷窥的视角，以艺术品的形式展现出来，我们得以自由的注视，其实也是一种对我们主体性的解放。某些电影亦然。
-
-所以[马奈](https://zhida.zhihu.com/search?content_id=51913093&content_type=Answer&match_order=1&q=马奈&zd_token=eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJpc3MiOiJ6aGlkYV9zZXJ2ZXIiLCJleHAiOjE3NjQ2NDI1MTgsInEiOiLpqazlpYgiLCJ6aGlkYV9zb3VyY2UiOiJlbnRpdHkiLCJjb250ZW50X2lkIjo1MTkxMzA5MywiY29udGVudF90eXBlIjoiQW5zd2VyIiwibWF0Y2hfb3JkZXIiOjEsInpkX3Rva2VuIjpudWxsfQ.6fs4aaWrUwnU2T-4ijhEbD2SecHOOcw8nwfyiogMpLU&zhida_source=entity)的草地上的午餐很有革命性，一样的道理，远处河里有女性戏水，这是一个偷窥视角，近处的裸女大大方方的在一群衣着正式的绅士中，注视画外的观众，这是对偷窥者的挑衅，她的潜台词我认为就是“看就看，怕什么，你看我就不怕被他们看”
-
-
-
-他人对你的评价和标签，会加速主体我的崩塌，从而使你物化和异化。人与人之间的无时无刻不在进行主权争夺，可能这就是社交障碍的根源所在。
-
-此种情况下，他人的目光影响我的自由意志，左右我的选择，这令我痛苦，尤其是有时候在他人的影响之下做出违背心意的选择的时候。而我将别人视为“非我”、“他者”，“我”和“他们”的区别，界定什么是“自我”的范围。所以，如果没有他人，我就不会是现在这样的我，但是现在这样的我因为他人而存有丧失判断和自由选择能力的危险。
-
-
-
-# **阅读**
-
-## 《了不起的我》 陈海贤
+# 《了不起的我》 陈海贤
 
 **改变，你一直有选择**
 
@@ -314,7 +236,7 @@ at the end of the day, you are the architect and your life is your design.最终
 
 
 
-## 《精神分析案例解析》Nancy McWilliams
+# 《精神分析案例解析》Nancy McWilliams
 
 内在的自由感是一个人最珍贵的心理状态之一。
 
@@ -322,19 +244,21 @@ at the end of the day, you are the architect and your life is your design.最终
 
 如果我是男孩，也许长大后就子承父业；如果我是女孩，就会像我母亲那样生活。
 
-在这样的社会，我的角色非常清晰，尽管我没有多少选择的余地，但心理上的安全感是绝对可以保障的。我不必费神思虑我存在的意义，也不必担心我是否在重大事件中起重要作用。
+在这样的社会，我的角色非常清晰，尽管我没有多少选择的余地，但心理上的安全感是绝对可以保障的。
+
+我不必费神思虑我存在的意义，也不必担心我是否在重大事件中起重要作用。
 
 反之，如果我成长在一个复杂的社会，陌生人走马灯似地变化，居无定所，无法亲近权威人士，而其他人总是以非人性化的方式对我的衣着、饮食、思想、情感及职业指手画脚，且相互矛盾，那么，理解“我是谁”以及“我在这个混乱状态中处于什么位置”就显得极其重要。
 
 
 
-## 《永恒少年》Marie-Louise von Franz
+# 《永恒少年》Marie-Louise von Franz
 
 
 
-## What really matters in your 20s
+# What really matters in your 20s
 
-大多数人追求的是优越感，而非幸福
+大多数人追求的是优越感，而非幸福。
 
 叙事从众——用一种文化剧本，而不是真正有益于我长期幸福的标准来评判我的人生进程。
 
@@ -416,38 +340,34 @@ E代表精力保护，这是关于建立界限和系统，来保护你最宝贵�
 
 大多数人追求的是优越感，而非幸福。
 
+# From surviving to thriving
+
+2026年6月11日19:26:56
+
+认知疗愈的目标是让大脑变得对自己更友好，重点在于识别并消除童年时被灌输的破坏性想法和思维。还需要学会选择健康且准确的方式来看待和谈论自己。
+
+有一种特别可悲的发展停滞困扰着许多幸存者，那就是意志力和自驱力的丧失。
+
+即时他成功确定了自己的目标，可能也很难持续且专注地付出努力来实现目标。
+
+激发意志力的能力似乎与恰当地表达愤怒的能力有关。
+
+童年时，我的逃反应转化为了对学习成绩的追求，因为成绩好能使我获得外界的奖励。但这些奖励始终无法消除我的毒性羞耻感，无法让我感到自己是个有价值的人。
+
+学着摆脱不公允的自责，还可以激励自己摆脱父母的影响，自由地规划自己的疗愈之旅，并为此建立对自己的绝对忠诚。
 
 
-# 写作
 
-## 自我
+2026年6月22日22:31:44
 
-要让自己的思维贴近现实，而非任由幻想。
+无法感到自己的悲伤的人，常常不会发现自己被不公平地排挤；而那些无法感觉到自己被虐待的正常愤怒或者恐惧反应的人，则常常将自己置于不战而降、容忍虐待的危险之中。
 
-梦见分手，是压力和害怕情绪的杂糅
 
-很多心理压力来源于睡眠不足
 
-心理状态不行时，要检查睡眠是否充足 饮食摄入是否健康 每日安排是否完成
+2026年6月22日22:46:45
 
-过分解构世界是危险的。
+情绪会告诉我们，什么才是对我们真正重要。
 
-敢想敢做是我的人生信条，做一位充满生命力的人，不要把“不符合”内化进自己内心，保持住自己的主体性。
+找茬鬼会反射性地论断人和事务：如果他们不完美，就是有缺陷的。
 
-难道剩下时光充斥着焦虑和担忧，这段时光我学会的道理就是抛弃幻想，脚踏实地，其实没有任何东西束缚着自己，专注于自己的成长。
-
-过去的自己对权威有种畏惧，实验报告还要抄写两遍，做无用功。
-
-在这两年学习的东西，抛弃幻想，从自己实际出发，善待自己的情绪，接受潜意识里的不安和迷茫，找到属于自己的位置。
-
-心灵的自由才会带来生活的自由，幻想如一条枷锁，如果幻想着得到某件事情，事情就会变得更好，那只能陷入循环。
-
-解决矛盾，抛弃幻想，用解决的方案塞满自己的思想，读书+游戏娱乐
-
-对于工作的幻想好像是多休息日 福利假期
-
-内心渴望被关注 好成绩能获得家长 老师关注 但现在已经成年，已经没有那么多关注，潜意识动力源泉没有那么充足 提升自己的自驱力 给自己内心充分的休息。
-
-失去能量大概率是因为个人主线不清晰，滥用能量，又放不下大部分人的共识，把宝贵的资产都拱手让人，自己只剩下空壳。所以整个人提不起劲儿，做事也没有什么动力，做点小事，就累的慌。
-
-不要羡慕别人的人生，那只是他们选择公开的片段。
+我们越能自我支持，就会吸引越多支持我们的人；我们越能受到他人的支持，我们就越能支持自己
